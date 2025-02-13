@@ -1,0 +1,22 @@
+Family:
+Mother - Unknown
+Father - Unknown
+
+Beneath the eternal twilight of [[The Line]], where the realm of ceaseless day met the dominion of unbroken night, lay the port city of [[Rothsven]], a place of shifting tides and shifting fates. Here, Rhett Windroot was left at the doorstep of the [[Wayfarer’s Haven]], the city’s largest orphanage, swaddled in a tattered woolen blanket and bearing a note written in an unfamiliar hand:
+"Boy raised by orc. Boy too smart. Orc give boy to people smart too."
+The headmaster, an older woman named [[Eldrin Vaelthorne]], had read the note aloud before tucking it away, never speaking of it again. And so Rhett grew beneath the copper-lit lanterns of Rothsven, never knowing the hands that had left him nor the truth of his past.
+Despite his humble origins, Rhett was no ordinary boy. He possessed an insatiable hunger—not for food, but for knowledge. While the other orphans played in the salt-laden streets, Rhett spent his days haunting the [[Bursmond Archives]], a grand library in the inner portion of the city. There, he devoured books on history, magic, navigation, and the myths of the world, eager to unravel the mysteries of his existence. He found notes of the [[Celestine Archives]], a rumored library of unknown location that contained knowledge from before [[The End Times]]. 
+
+Yet even a boy who longed for solitude could not escape friendship.
+Among the children of Rothsven was [[Logan Vinen]], a boisterous youth with the energy of a summer storm, always dragging Rhett from the pages of his books to explore the city. Logan had a younger brother, [[Kain Vinen]], a frail child but brimming with mirth, his laughter as bright as the ever-setting sun above. Together, they ran through the cobbled streets, weaving between merchant stalls and daring to climb the towering stone seawalls that kept the dark tide of the [[Bursmond Sea]] at bay.
+But joy was a fickle thing in Rothsven.
+
+One fateful evening, Logan arrived outside the orphanage throwing stones at Rhett's room window. Rhett opened the window and was about to scold him when he saw Logan's expression. His face pale and his eyes hollow, tears forming under his eyes.
+"Kain is gone," he stated.
+[[Blight]] had gripped the Line that year. Kain, always small, had not been strong enough to endure. Rhett had known illness before, but this loss made it feel different—sharp, cruel, a wound that no book could mend.
+
+Years passed. Childhood faded into the obligations of adulthood, and Rhett, longing to escape the sorrow-haunted streets of Rothsven, turned to the only path that promised freedom—the sea. [[The Stormtide Fleet]], renowned across the Line for their perilous voyages, accepted him as an apprentice sailor. He learned the art of rigging, the secrets of the currents, and the patterns that guided ships through the treacherous seas. Yet his true adventure began when he joined the crew of [[Mariel “Stormhelm” Ellisar]], a woman whispered of in the taverns as a legend in her own time.
+
+Rhett, no longer a boy, stood among her crew, the salt wind whipping through his hair as he gazed out across the endless waters. He had left the orphanage, the famine, and the sorrow of Rothsven behind. But the past was not something one could outrun—not even across the vastness of the sea. With his earnings working on the seas, he helps to fund the orphanage. Keep it going so other kids in need can grow up with a chance like he had. After Mariel's retirement he continued sailing but kept to the Bursmond Sea, reporting back to Rothsven whenever he could. 
+
+That was until one fateful day he returned to Rothsven and grabbed a drink with Logan, only to find a giant Serpent attacking the city. Terror and destruction ensued and Rhett felt it was his obligation to do something to protect the ones he cared for. He went to try to avoid the Serpent but found himself thrown through the glass windows of the library after trying to protect a girl from being bitten. Glass shards sprawling the floor and bleeding profusely, he fashioned makeshift bandages out of old books. While scrambling to bandage himself he found a book that seemed alive, magical in nature. While not the first time he had seen such a book, this time he could read it, understand it. Astute as he is, Rhett vowed to study the book and find out its secrets. After the Serpent was cast from the city, he and his new found friends made their way to [[Elmwood]] to find out how to protect their city and others from this [[Hooded Figure]].
